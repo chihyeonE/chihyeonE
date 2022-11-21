@@ -1,7 +1,7 @@
 
 
 **Hi there, I'm Chihyeon**✌️<Br><Br>
-Before I'm Majoring in:<Br>
+B.S I've Majored in:<Br>
 **Materials Science & Chemical Engineering🔬**<Br>
 **Industrial Artificial Intelligence🤖**<Br><Br>
 

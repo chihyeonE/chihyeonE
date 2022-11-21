@@ -4,11 +4,11 @@
 B.S I've Majored in:<Br>
 **Materials Science & Chemical Engineering🔬**<Br>
 **Industrial Artificial Intelligence🤖**<Br>
-At Hanyang Univ. Ansan🐯<Br><Br>
+At Hanyang Univ. Ansan<Br><Br>
 
 M.S Now I'm majoring in:<Br>
 **Electronic Engineering⚡️**<Br>
-At Hanyang Univ. Seoul🐯<Br><Br>
+At Hanyang Univ. Seoul<Br><Br>
 
 Interested in **Deep Learning, Electromagnetic Simulation, Metasurface Design**🏔
 
